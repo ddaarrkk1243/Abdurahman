@@ -7,4 +7,4 @@ I am intersted in learning technology related stuffs
 What are you working on?
 am working on assignment that was given mr hussen Ali
 What's your favorite hobby?
-my favorite hobby is sleeping.
+my favorite hobby is coding.
